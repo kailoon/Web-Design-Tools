@@ -16,7 +16,7 @@
 2. **[Unsplash](https://unsplash.com/)** Get 10 new incredibly beautiful pictures everyday (CC0).
 4. **[Pexels](https://pexels.com)** Get access to the best free stock photos.
 5. **[Gratisography](http://www.gratisography.com/)** Ryan McGuire takes thousands of exquisite pictures. Get them all. Free of use.
-6. **New Old Stock[](http://nos.twnsnd.co/)** Download vintage pictures from publoc archives.
+6. **[New Old Stock](http://nos.twnsnd.co/)** Download vintage pictures from publoc archives.
 7. **[SplitShire](http://www.splitshire.com/)** Webdesigner Daniel Nanescu shares hundreds of gorgeous CCO-licensed.
 8. **[Death to Stock Photos](http://deathtothestockphoto.com/)** Receive original pictures in your email every monht.
 
